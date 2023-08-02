@@ -3,4 +3,7 @@ Fortnite latest updated offsets and sigs | they are using my free source reselli
 --
 these people are scamming their customers selling them free stuff for real fuck*ng money
 --
+they have changed their name to Sentinal and thought i wouldn't get them anyways
+--
+here is my discord server where i post legit free stuff and sexy leaks
 https://discord.gg/mysteryman
